@@ -1,1 +1,1 @@
-Hello Evryone
+Hello Everyone
